@@ -1,6 +1,6 @@
 # hi lol uhm i mad ahhaha /aimed
 
-<img width="784" height="765" alt="image" src="https://github.com/user-attachments/assets/1eeecf44-6750-4e83-ab75-a61e2acea097" />
+<img width="653" height="490" alt="image" src="https://github.com/user-attachments/assets/2ffdc28d-c039-40d1-a7ea-f118c5b7e8c5" />
 
 
  Butt lord hi
