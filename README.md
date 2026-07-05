@@ -8,5 +8,5 @@
 <br> ${\textsf{\color{#758ffe}⠀⠀　⠀✿⠀IM ADULT!!! 　　　　　₊　　˙　}}$ <img src="https://64.media.tumblr.com/0eb8052078b076ada2a0addbd6c45ed9/0ed57e0a8d70951b-64/s75x75_c1/74e9e4e503dd893d34d2469ed377bf5fae6bca00.gifv"/>
 
 <br> ${\textsf{\color{#99acff} I am d fortnitelover　໒୧}}$　　
-<br> ${\textsf{\color{#A8c9ff}　　　𝄢　feel free to talk to me oke bye ‿ }}$ 　　<img src="https://64.media.tumblr.com/b6ccb0ef0210873d0de3f5ee7ef309d6/33a7699c19ae21fa-df/s75x75_c1/33b7fb1aa3f141d5eadf2c75933d23b2421f35a7.gifv"/>
+<br> ${\textsf{\color{#A8c9ff}　　　𝄢　feel free to talk to me oke bye ‿ }}$ <img src="https://64.media.tumblr.com/b6ccb0ef0210873d0de3f5ee7ef309d6/33a7699c19ae21fa-df/s75x75_c1/33b7fb1aa3f141d5eadf2c75933d23b2421f35a7.gifv"/>
 `
