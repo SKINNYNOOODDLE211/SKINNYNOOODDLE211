@@ -3,7 +3,7 @@
 <br>${\textsf{\color{#2843b9}(๑ > ᴗ < ๑)°ᡣ𐭩 !!}}$ ${\textsf{\color{#405bd3}Noodle}}$ 
 <br>ㅤ۫　 ⠀𓈒⠀　　⑅　 ⠀𓈒⠀ㅤ۫　
 
-<p align=right><br> ${\textsf{\color{#5a79ff}♡⸝　he / them  , agender (questioning) }}$ 　　
+<p align=right><br> ${\textsf{\color{#5a79ff}♡⸝　he / them , non bianry  }}$ 　　
 <br> ${\textsf{\color{#758ffe}   ⠀―⠀　　I block freely! }}$　
 <br> ${\textsf{\color{#758ffe}⠀⠀　⠀✿⠀IM ADULT!!! 　Check strawpage for more abt me.　　　　₊　　˙　}}$ <img src="https://64.media.tumblr.com/0eb8052078b076ada2a0addbd6c45ed9/0ed57e0a8d70951b-64/s75x75_c1/74e9e4e503dd893d34d2469ed377bf5fae6bca00.gifv"/>
 
