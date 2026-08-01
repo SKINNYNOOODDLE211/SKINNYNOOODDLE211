@@ -1,3 +1,8 @@
+
+![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FSKINNYNOOODDLE211&labelColor=%23ffffff&countColor=%23e53935&style=plastic&labelStyle=lower)
+
+
+
 <img width="3400" height="323" alt="image" src="https://github.com/user-attachments/assets/f36403bd-fc91-40b4-9f29-8796c55a5f5e" />
 
 
