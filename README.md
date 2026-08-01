@@ -6,7 +6,7 @@
 <br>${\textsf{\color{#EF5350}(๑ > ᴗ < ๑)°ᡣ𐭩 !!}}$ ${\textsf{\color{#E53935}Noodle}}$ 
 <br>ㅤ۫　 ⠀𓈒⠀　　⑅　 ⠀𓈒⠀ㅤ۫　
 
-![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FSKINNYNOOODDLE211&labelColor=%23ffffff&countColor=%23e53935&style=plastic&labelStyle=lower)
+[![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2FSKINNYNOOODDLE211&labelColor=%23ffffff&countColor=%23e53935&style=plastic&labelStyle=lower)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2FSKINNYNOOODDLE211)
 
 <p align=right><br> ${\textsf{\color{#BD00F2}♡⸝　he / them , non bianry  }}$ 　　
 <br> ${\textsf{\color{#00C5F2}   ⠀―⠀　　I block freely! }}$　
