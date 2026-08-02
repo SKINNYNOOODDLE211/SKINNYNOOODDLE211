@@ -10,7 +10,7 @@
 
 <p align=right><br> ${\textsf{\color{#BD00F2}♡⸝　he / them , non bianry  }}$ 　　
 <br> ${\textsf{\color{#00C5F2}   ⠀―⠀　　I block freely! }}$　
-<br> ${\textsf{\color{#81F300}⠀⠀　⠀✿⠀IM ADULT!!! 　Check strawpage for more abt me.　　　　₊　　˙　}}$ <img src="https://64.media.tumblr.com/0eb8052078b076ada2a0addbd6c45ed9/0ed57e0a8d70951b-64/s75x75_c1/74e9e4e503dd893d34d2469ed377bf5fae6bca00.gifv"/>
+<br> ${\textsf{\color{#81F300}⠀⠀　⠀✿⠀Please check strawpage for more abt me.　　　　₊　　˙　}}$ <img src="https://64.media.tumblr.com/0eb8052078b076ada2a0addbd6c45ed9/0ed57e0a8d70951b-64/s75x75_c1/74e9e4e503dd893d34d2469ed377bf5fae6bca00.gifv"/>
 
 <br> ${\textsf{\color{#FFD801} I am d fortnitelover　໒୧}}$　　
 <br> ${\textsf{\color{#FF6600}　　　𝄢　feel free to talk to me oke bye ‿ }}$ <img src="https://64.media.tumblr.com/b6ccb0ef0210873d0de3f5ee7ef309d6/33a7699c19ae21fa-df/s75x75_c1/33b7fb1aa3f141d5eadf2c75933d23b2421f35a7.gifv"/>
