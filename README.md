@@ -4,7 +4,7 @@
 
 
 <p align=left><br>ㅤ۫　 ⠀𓈒⠀　　⑅　 ⠀𓈒⠀ㅤ۫　
-<br>${\textsf{\color{#A52A2A}(๑ > ᴗ < ๑)°ᡣ𐭩 !!}}$ ${\textsf{\color{	#808000}Noodle}}$ 
+<br>${\textsf{\color{#808000}(๑ > ᴗ < ๑)°ᡣ𐭩 !!}}$ ${\textsf{\color{	#A52A2A}Noodle}}$ 
 <br>ㅤ۫　 ⠀𓈒⠀　　⑅　 ⠀𓈒⠀ㅤ۫　
 
 
